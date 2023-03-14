@@ -1,1 +1,0 @@
-# 1KBSoftwareSolutions.github.io
